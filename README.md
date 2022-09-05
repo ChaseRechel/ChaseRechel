@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @ChaseRechel
-- 👀 I’m interested in computers, outdoors, and learning. 
 - 📫 How to reach me ---> rechel.chase@gmail.com
 
 <!---
